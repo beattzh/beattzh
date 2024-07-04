@@ -1,3 +1,3 @@
 ## Expresso
 
-iniciando ainda  💌 
+aprendendo ainda, não sei nada 💌 
